@@ -4,7 +4,7 @@
 - 🏢 GE Appliances, a Haier company
 
 - Live in 🇰🇷 
-- Visited: 🇺🇸 🇭🇰 🇳🇱 🇯🇵 🇪🇸 🇲🇴 
+- I ❤️ traveling🌏. Visited: 🇺🇸 🇭🇰 🇳🇱 🇯🇵 🇪🇸 🇲🇴 
 
 
 <!--- 👀 I’m interested in ...

@@ -1,7 +1,7 @@
 ## 👋 Hi, I’m **@KennyYi**
 
 - 💻 Android / Flutter SW programmer 
-- 🏢 GE Appliances, a Haier company
+- 🏢 Startup company
 
 - Live in 🇰🇷 
 - I ❤️ traveling🌏. Visited: 🇺🇸 🇭🇰 🇳🇱 🇯🇵 🇪🇸 🇲🇴 

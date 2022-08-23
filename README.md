@@ -1,11 +1,9 @@
 ## 👋 Hi, I’m **@KennyYi**
 
-- 💻 Android / Flutter SW programmer 
-- 🏢 Startup company
+- 💻 SWE
+- 🏢 Stealth mode Startup company 
 
 - Live in 🇰🇷 
-- I ❤️ traveling🌏. Visited: 🇺🇸 🇭🇰 🇳🇱 🇯🇵 🇪🇸 🇲🇴 
-
 
 <!--- 👀 I’m interested in ...
 - 💞️ I’m looking to collaborate on ...
